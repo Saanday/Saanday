@@ -26,11 +26,10 @@ Vous pouvez me contacter via :
 - Email : sandy.cisse1997@gmail.com
 
 
-[web.pdf](https://github.com/Saanday/Saanday/files/12663343/web.pdf)%PDF-1.7
 
 
 
 
 
 
-  
+
