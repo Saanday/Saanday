@@ -8,5 +8,5 @@
         |     |                 
       ---------                    
       .'  O    \     /              
-     (_____,    `._.'             ![image](https://github.com/Saanday/Saanday/assets/145434421/60640c2d-4525-47ec-9fff-7e131370e3f4)
+     (_____,    `._.'             
      `----.          /     
